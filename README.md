@@ -1,3 +1,3 @@
-# miku miku [ooo.eeeee.ooo](https://ooo.eeeee.ooo)
+# teto teto [ooo.eeeee.ooo](https://teto.ooo.eeeee.ooo)
 
-i'm thinking miku miku [ooo.eeeee.ooo](https://ooo.eeeee.ooo)
+i'm thinking teto teto [ooo.eeeee.ooo](https://teto.ooo.eeeee.ooo)
